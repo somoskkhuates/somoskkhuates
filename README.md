@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @somoskkhuates am a music producer 
 - 👀 I’m interested in ... music studio, videogames, coding and relax 
 - 🌱 I’m currently learning ... technologies 
-- 💞️ I’m looking to collaborate on ... pretty womans, musicians, and workfull people 
+- 💞️ I’m looking to collaborate on ... ing, musicians, and workfull people 
 - 📫 How to reach me ... ferdinanddamnd on instagram 
 
 <!---
